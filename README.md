@@ -1,7 +1,8 @@
 leahic
 ==============================
 
+A common Man who like Japanese animes and Blizzard's games.
 
-Remember
+A common Man who like fantasy and laugh at himself.
 
-In all of time,I am the third passerby.
+A common Man who like make friend with anyone and be lonely in silent.
